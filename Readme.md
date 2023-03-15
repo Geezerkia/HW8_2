@@ -1,0 +1,1 @@
+HW8_2 Competition of humans, cats and robots
